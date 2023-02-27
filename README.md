@@ -6,4 +6,4 @@
 
 - [越後本ズワイガニロボコン チームミラプロ](https://peraichi.com/landing_pages/view/hr-niigata/)
 - [越後本ズワイガニロボコン チームマジラボ](https://magilabo.com/)
-- [山古志大根アバター](【無料】山古志大根アバター - kousuke-s - BOOTH)
+- [【無料】山古志大根アバター - kousuke-s - BOOTH](https://kousuke-s.booth.pm/items/4112847)
